@@ -1,3 +1,0 @@
-# PicGo
-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
-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
